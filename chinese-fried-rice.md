@@ -20,6 +20,6 @@
 6. Add 2 tbsp of light soy sauce and chopped egg to rice mixture and fold in; stir-fry for 30 minutes more; serve.
 
 ## Nutrition Value
-Total Fat 20%
-Total Carbohydrate 30%
-Protein 50%
+* Total Fat 20%
+* Total Carbohydrate 30%
+* Protein 50%
